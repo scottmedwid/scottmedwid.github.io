@@ -1,2 +1,2 @@
 # scottmedwid.github.io
-UI/UX &amp; Visual Design Portfolio
+UI/UX &amp; Visual Design Portfolio Coming soon
